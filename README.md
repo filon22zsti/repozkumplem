@@ -1,1 +1,2 @@
 # repozkumplem
+### szymon tu byl?
